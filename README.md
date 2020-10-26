@@ -1,1 +1,1 @@
-# [Min Goo]'s Notes
+# Min Goo's Notes
